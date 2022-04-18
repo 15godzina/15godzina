@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @15godzina
+- 👀 I’m interested in ty
+- 🌱 I’m currently learning jak cie wydzibuciac
+- 💞️ I’m looking to collaborate on kguild
+- 📫 How to reach me diskord karol.#1005
