@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @15godzina
-- 👀 I’m interested in ty
-- 🌱 I’m currently learning jak cie wydzibuciac
-- 💞️ I’m looking to collaborate on kguild
-- 📫 How to reach me diskord karol.#1005
+- 👋 Hi, I’m karol!
+- 👀 I’m interested in coding.
+- 📫 How to reach me? U can add me as friend in discord! karolson777
