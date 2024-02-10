@@ -1,3 +1,3 @@
-- 👋 Hi, I’m karol!
-- 👀 I’m interested in coding.
-- 📫 How to reach me? U can add me as friend in discord! karolson777
+- 👋 Hi, I’m żarn!
+- 👀 I’m interested in żarn.
+- 📫 How to reach me? in żarn
